@@ -8,8 +8,6 @@
 
 *heterosexual*
 
-*w2i, c+h and DNC my skins plss!!*
-
 **!DNI/Don't be friends with me!**
 ---
 - *if you are under 13 or over 20... (this does not apply to people I met when they were 18!)*
