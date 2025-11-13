@@ -1,5 +1,7 @@
 🦭**About me**
 ---
+<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/ed757624-907c-4d60-978d-26b343cf306f" />
+
 *Hi, my name is Kverz, I'm 13 years old, I was born and live in Russia. I speak both Russian and English fluently (at least, I'm trying to master it). I'm also learning Korean for my future life.*
 
 *any prns but preferably he/him plss!*
