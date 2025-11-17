@@ -63,7 +63,6 @@
 
 ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
 
-**README.md creation date: November 10**
 
 
 
