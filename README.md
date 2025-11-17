@@ -1,6 +1,6 @@
 🦭**About me**
 ---
-*Hi, my name is Kverz, I'm 13 years old, I was born and live in Russia. I speak both Russian and English fluently (at least, I'm trying to master it). I'm also learning Korean for my future life.*
+*Hi, my name is Kverz, I'm 13 years old, I was born and live in Russia. I speak both Russian and English fluently (at least, I'm trying to master it)*
 
 *any prns but preferably he/him plss!*
 
