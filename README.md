@@ -17,7 +17,7 @@
 - *if you have strange behavior*
 - *if you don't have a hobby*
 - *if you lie to other people*
-- *you don't respect other people*
+- *if you don't respect other people*
 - *if you copy other people's skins*
 
 **!additional information!**
@@ -56,7 +56,7 @@
 
 **Pony Town statuses:**
 ---
-🟢 - *online* ; 🌙 - *afk, but I definitely notice the whispers after a while!*
+🟢 - *online* ; 🌙 - *afk*
 
 ![ ](https://github.com/user-attachments/assets/f0a5ea0e-297d-4226-ac8b-5b8b2c090003)
 
