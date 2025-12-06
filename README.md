@@ -14,7 +14,7 @@ I'm not against meeting new people
 Info about me will be on my strawpage
 [work in progress].
 
-🟢 online | 🌙 afk | 
+🟢 - online | 🌙 - afk 
 
 **<a href="https://kv1rz.atabook.org/" target="_blank">atabook</a>**
 
