@@ -9,7 +9,7 @@
 <div align="center">
 Hi! Come and sit down anytime. I'm often afk, so write in a whisper!
 
-I'm not against meeting new people
+I'm happy to meet new people, but I'm often too shy to approach them on my own
 
 Info about me will be on my strawpage
 [work in progress].
