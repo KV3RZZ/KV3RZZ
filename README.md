@@ -10,8 +10,12 @@
 <div align="center">
 
 
+<div align="center">
 
----
+![C185C737-DB88-48D6-994F-422467D0C1D0_4_5005_c](https://github.com/user-attachments/assets/f6f84d94-28eb-4a0d-a681-d8644e49a48d)
+
+
+
 
 <div align="center">
 Hi! Come and sit down anytime. I'm often afk, so write in a whisper!
