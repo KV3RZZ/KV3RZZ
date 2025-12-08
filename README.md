@@ -1,3 +1,8 @@
+<div align="center">
+  
+![E6CF734B-00BB-4CB8-A537-E8B4ACE1CAD3_4_5005_c](https://github.com/user-attachments/assets/b22562f9-8341-4e48-8443-7e2949f4e122)
+
+
 
 
 <div align="center">
@@ -23,6 +28,10 @@ Info about me will be on my strawpage
 
 
 ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
+
+<div align="center">
+
+![429A9584-26D6-4B66-811A-2C1453BE0BFF_4_5005_c](https://github.com/user-attachments/assets/069d817e-adaa-4564-a010-b25c3f6e9c85)
 
 
 
