@@ -22,7 +22,7 @@ Hi! Come and sit down anytime. I'm often afk, so write in a whisper!
 
 I'm happy to meet new people, but I'm often too shy to approach them on my own
 
-Info about me will be on my strawpage
+Info about me will be in rentry.co
 [work in progress].
 
 🟢 - online | 🌙 - afk 
