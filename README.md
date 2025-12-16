@@ -22,9 +22,6 @@ Hi! Come and sit down anytime. I'm often afk, so write in a whisper!
 
 I'm happy to meet new people, but I'm often too shy to approach them on my own
 
-Info about me will be in strawpage
-[work in progress].
-
 🟢 - online | 🌙 - afk 
 
 **<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**
