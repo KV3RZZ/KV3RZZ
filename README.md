@@ -30,6 +30,8 @@ I'm happy to meet new people, but I'm often too shy to approach them on my own
 
 **<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**
 
+**<a href="https://rentry.co/KV3RZ-Kverz"
+target="_blank">rentry.co</a>**
 
 
 ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
