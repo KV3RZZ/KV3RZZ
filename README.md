@@ -1,19 +1,23 @@
 <div align="center">
   
-![E6CF734B-00BB-4CB8-A537-E8B4ACE1CAD3_4_5005_c](https://github.com/user-attachments/assets/b22562f9-8341-4e48-8443-7e2949f4e122)
+![6FE7A1DE-9549-4FF2-84D0-B8710E5EA271_4_5005_c](https://github.com/user-attachments/assets/5313f6a2-a941-486b-b812-c1866cd8b218)
 
 
 
-
-<div align="center">
-<img width="70%" src=  https://github.com/user-attachments/assets/1d0728a7-6aca-4cfd-8e09-ec09f73692bc>
-<div align="center">
 
 
 <div align="center">
+<div align="center">
 
-![C185C737-DB88-48D6-994F-422467D0C1D0_4_5005_c](https://github.com/user-attachments/assets/f6f84d94-28eb-4a0d-a681-d8644e49a48d)
 
+<div align="center">
+
+![10AED439-ABE2-4EB0-AC99-50C3B6F1433B](https://github.com/user-attachments/assets/f5a7a951-55d2-4f8e-9d14-fccb4252beeb)
+
+
+<div align="center">
+
+  ![2B34E1E9-2982-4A40-A968-55C29A1A4DE6_4_5005_c](https://github.com/user-attachments/assets/d36dab06-44d5-43b5-a4d4-3b3162875cdf)
 
 
 
@@ -32,7 +36,10 @@ I'm happy to meet new people, but I'm often too shy to approach them on my own
 
 <div align="center">
 
-![429A9584-26D6-4B66-811A-2C1453BE0BFF_4_5005_c](https://github.com/user-attachments/assets/069d817e-adaa-4564-a010-b25c3f6e9c85)
+  ![ -29](https://github.com/user-attachments/assets/de3c8567-2380-4ef7-8e87-d0843ba073e5)
+
+
+
 
 
 
