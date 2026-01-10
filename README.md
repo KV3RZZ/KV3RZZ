@@ -1,23 +1,27 @@
 <div align="center">
   
-![6FE7A1DE-9549-4FF2-84D0-B8710E5EA271_4_5005_c](https://github.com/user-attachments/assets/5313f6a2-a941-486b-b812-c1866cd8b218)
+<img width="828" height="183" alt="Untitled63_20260110172248" src="https://github.com/user-attachments/assets/fbca6c66-99af-43f6-85a9-ad2edffdf91d" />
 
+
+
+
+
+
+<div align="center">
+<div align="center">
+
+
+<div align="center">
+
+  <img width="735" height="500" alt="Untitled60_20260110172105" src="https://github.com/user-attachments/assets/abb221de-f141-4a36-9da6-070bc32c1b85" />
 
 
 
 
 <div align="center">
-<div align="center">
 
+<img width="732" height="113" alt="Untitled64_20260110171746" src="https://github.com/user-attachments/assets/6fb347de-d4ea-40c3-8ccf-641ecaff554a" />
 
-<div align="center">
-
-![10AED439-ABE2-4EB0-AC99-50C3B6F1433B](https://github.com/user-attachments/assets/f5a7a951-55d2-4f8e-9d14-fccb4252beeb)
-
-
-<div align="center">
-
-  ![2B34E1E9-2982-4A40-A968-55C29A1A4DE6_4_5005_c](https://github.com/user-attachments/assets/d36dab06-44d5-43b5-a4d4-3b3162875cdf)
 
 
 
@@ -38,7 +42,8 @@ target="_blank">rentry.co</a>**
 
 <div align="center">
 
-  ![ -29](https://github.com/user-attachments/assets/de3c8567-2380-4ef7-8e87-d0843ba073e5)
+<img width="828" height="183" alt="Untitled63_20260110173024" src="https://github.com/user-attachments/assets/d43e8953-3268-4878-84eb-6cb8b4f145e9" />
+
 
 
 
