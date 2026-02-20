@@ -32,9 +32,7 @@ I'm happy to meet new people, but I'm often too shy to approach them on my own
 
 🟢 - online | 🌙 - afk 
 
-**<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**
-
-**<a href="https://rentry.co/KV3RZZ"
+**<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>** **<a href="https://rentry.co/KV3RZZ"
 target="_blank">rentry.co</a>**
 
 
