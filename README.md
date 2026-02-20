@@ -23,7 +23,7 @@
 <img width="732" height="113" alt="Untitled64_20260110171746" src="https://github.com/user-attachments/assets/6fb347de-d4ea-40c3-8ccf-641ecaff554a" />
 
 
-
+![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
 
 <div align="center">
 Hi! Come and sit down anytime. I'm often afk, so write in a whisper!
@@ -32,11 +32,13 @@ I'm happy to meet new people, but I'm often too shy to approach them on my own
 
 🟢 - online | 🌙 - afk 
 
-**<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>** **<a href="https://ren/KV3RZZ"
+ ───────────────
+
+**<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://ren/KV3RZZ"
 target="_blank">rentry.co</a>**
 
 
-![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
+
 
 <div align="center">
 
