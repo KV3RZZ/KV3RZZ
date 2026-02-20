@@ -32,8 +32,8 @@ I'm happy to meet new people, but I'm often too shy to approach them on my own
 
 🟢 - online | 🌙 - afk 
 
-**<a href="https://Kv3rz.atabook.org/" target="_blank">ata</a>**book  **<a href="https://ren/KV3RZZ"
-target="_blank">rentry.co</a>**try.co
+**<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>** **<a href="https://ren/KV3RZZ"
+target="_blank">rentry.co</a>**
 
 
 ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
