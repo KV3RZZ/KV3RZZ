@@ -6,7 +6,7 @@
 
   ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
 
-─────────────
+⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔
 
 **<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://rentry.co/KVERZ"
 target="_blank">rentry.co</a>**
