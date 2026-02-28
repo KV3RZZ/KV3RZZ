@@ -7,7 +7,8 @@
  ![5267258724458370250](https://github.com/user-attachments/assets/1d4aa41f-4cd3-4b17-be1c-e48551781f5d)
 
  **<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://rentry.co/KVERZ"
-target="_blank">rentry.co</a>**
+target="_blank">rentry.co</a>**⠀⠀**<a href="https://t.me/KV3RZ/" target="_blank">telegram</a>**
+
 
  ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
 
